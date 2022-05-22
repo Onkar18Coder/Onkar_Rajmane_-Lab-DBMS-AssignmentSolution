@@ -1,1 +1,0 @@
-# Onkar_Rajmane_-Lab-DBMS-AssignmentSolution
